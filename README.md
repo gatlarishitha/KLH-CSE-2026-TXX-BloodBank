@@ -10,7 +10,7 @@
 
 ## Supervisor
 
-Rajesh
+Dr.Rajesh
 
 ## Abstract
 
